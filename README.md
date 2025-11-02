@@ -1,3 +1,3 @@
-Please read the story below first.
-https://qcnbo088fhlh.feishu.cn/wiki/IJF1wx7mnismC0kmGlhczM7DnKg?fromScene=spaceOverview
+Please read the story below first.  
 
+https://waytoagi.feishu.cn/wiki/LDlBwJ6UxiFQdUkDjxNcCjvnn3Z?from=space_search
